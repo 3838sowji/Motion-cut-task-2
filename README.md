@@ -1,1 +1,0 @@
-# Motion-cut-task-2
